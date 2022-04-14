@@ -7,6 +7,8 @@ Desenvolvedor de Software
 
 - 🎓 Sou técnico em Informática para Internet pelo Instituto Federal de Alagoas - IFAL.
 
+- 🎓 Cursando Sistemas de Informação - IFAL
+
 - ⚙️ Por nascer na Bolívia, dou aulas de espanhol nas horas vagas. 
 
 
